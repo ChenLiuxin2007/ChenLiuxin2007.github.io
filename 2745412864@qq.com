@@ -1,1 +1,0 @@
-https://qm.qq.com/cgi-bin/qm/qr?k=0CBoOngNtyqW0Gja3Zs22DheVJrkT3Ky&noverify=0
